@@ -13,6 +13,11 @@
 * Create a good family
 * Spread the Gospel
 
+## Why Im Special 
+*I am similar to almost no-one 
+* I have a very interesting form of speech
+* My humor is unmatched in how bad it is
+* Im just me
 <!--
 **Jujuondhatbeat/Jujuondhatbeat** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
