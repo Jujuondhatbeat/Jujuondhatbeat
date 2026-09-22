@@ -1,4 +1,10 @@
-## Hi there 👋
+# Bien-Cher Poliard 
+
+## American Heritage Schools palmbeach 
+
+##### Dream School Georgia Tech
+
+## I am a Super special child.
 
 <!--
 **Jujuondhatbeat/Jujuondhatbeat** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
