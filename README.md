@@ -6,6 +6,13 @@
 
 ## I am a Super special child.
 
+## My goals in Life:
+* Continue building my relationship with Jesus Christ
+* Design rockets, fighter jets, F1 cars, and or become a Bio medical engineer
+* Have at least a boy and a girl
+* Create a good family
+* Spread the Gospel
+
 <!--
 **Jujuondhatbeat/Jujuondhatbeat** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
